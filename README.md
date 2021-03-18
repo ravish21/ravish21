@@ -1,3 +1,3 @@
-# Ravish Kumar
-## _Welcome to Technical Repos_
+# Hi, I'm Ravish Kumar
+
 
